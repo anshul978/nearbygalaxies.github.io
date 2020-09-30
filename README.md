@@ -1,1 +1,1 @@
-## Team Nearby Galaxies Webpage
+## Team Nearby Galaxy Webpage
